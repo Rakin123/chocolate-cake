@@ -1,1 +1,0 @@
- Easy recipe to make your own chocolate cake. Servings is 24 with a total bake time of 45 min. The cake batter will be very thin after adding the boiling water. This is correct and results in the most delicious and moist chocolate cake I’ve ever tasted! xo
